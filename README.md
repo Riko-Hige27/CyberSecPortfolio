@@ -34,8 +34,8 @@ Stay tuned for upcoming projects in cybersecurity! I will regularly update this 
 Feel free to reach out if you have any questions or wish to discuss cybersecurity topics:
 
 - **Email**: [rekikfitret@gmail.com](mailto:rekikfitret@gmail.com)
-- **LinkedIn**: [Your LinkedIn Profile](https://linkedin.com/in/your-profile)
-- **GitHub**: [Your GitHub Profile](https://github.com/your-profile)
+- **LinkedIn**: [Your LinkedIn Profile](https://www.linkedin.com/in/rekik-higemengist/)
+- **GitHub**: [Your GitHub Profile](https://github.com/Riko-Hige27)
 
 Thank you for visiting my portfolio! 🌟
 
